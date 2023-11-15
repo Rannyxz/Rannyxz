@@ -1,5 +1,5 @@
-- 👋 oie estelinha...
-- 👀 horario meio improvavel né,
+👋 oie estelinha...
+ 👀 horario meio improvavel né,
  mas eu sou meia assim mesmo! 
   só queria te dizer o quanto tu é incrivel...
   te gosto muitooo💞️..
@@ -7,6 +7,4 @@
   da deixar uma programadora gostar
   de você 📫 ...
 
-<!---
-✨ special ✨click the Preview link
---->
+Eu te adoro mô 🫵🏼❤️😻
